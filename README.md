@@ -1,2 +1,1 @@
-# glasshalffull.github.io
-The optimism we need.
+Property of BME Ventures. A legally registered business in Ghana.
